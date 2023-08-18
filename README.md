@@ -1,2 +1,2 @@
 # hiveKickCodes
-hive's kick codes &lt;up to date>
+hive's kick codes &lt;not up to date but divine and the beste>
